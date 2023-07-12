@@ -12,5 +12,7 @@ SW: The Road Of Force - это исключительное дополнение
 
 Ссылки на сообщества:
 VK https://vk.com/avesgames.trof
+
 Discord https://discord.com/invite/EG9UYBb5wm
+
 TG https://t.me/STARWARSTHEROADOFFORCE
