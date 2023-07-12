@@ -11,6 +11,7 @@ SW: The Road Of Force - это исключительное дополнение
 ![изображение](https://github.com/Alex2013nck3/SWTROF-Mobile/assets/60184724/d013ec84-15b6-47b3-998e-d330ec9d68a5)
 
 Ссылки на сообщества:
+
 VK https://vk.com/avesgames.trof
 
 Discord https://discord.com/invite/EG9UYBb5wm
